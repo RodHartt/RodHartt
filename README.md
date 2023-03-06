@@ -1,1 +1,1 @@
-Hi im RodHartt and actually working on developing some projects that i want to push ahead and learn more in the meantime!
+Hi im Robin and actually working on developing some discords bot for comunities.
